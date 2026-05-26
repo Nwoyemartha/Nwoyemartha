@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nwoyemartha
+- 👋 Hi, I’m @Brillx
 - 👀 I’m interested in product design
 - 🌱 I’m currently learning UI/UX
 - 💞️ I’m looking to collaborate with friends to help me grow.
